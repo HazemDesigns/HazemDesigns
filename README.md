@@ -25,7 +25,7 @@ I'm proficient in a variety of design tools, including:
 
 I'm always eager to collaborate on exciting design projects or share insights about UI/UX design. Feel free to reach out and connect with me:
 - 📧 Email: [hazem.medhat146@gmail.com]
-- 🌐 LinkedIn: [Hazem Medhat](www.linkedin.com/in/hazem-medhat-373120233)
+- 🌐 LinkedIn: [www.linkedin.com/in/hazem-medhat-373120233]
 
 
 Let's create beautiful and user-friendly digital experiences together! 🌟
